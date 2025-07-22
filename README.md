@@ -18,7 +18,7 @@ Whether you're coding, creating, or managing campaigns, we've got your back.
 
 ## 🔗 Links
 
-- 🌐 Website: (https://sites.google.com/view/digitalmarketingmechanicseluru)
+- 🌐 Website: [Digital Marketing Mechanics](https://sites.google.com/view/digitalmarketingmechanicseluru)
 - 📧 Email: [digitalmarketingmechanics03@gmail.com](mailto:digitalmarketingmechanics03@gmail.com)
 - 📘 Facebook: [@DigitalMarketingMechanics](https://www.facebook.com/share/19C5N566SF/)
 - 📸 Instagram: [@digitalmarketingmechanics03](https://instagram.com/digitalmarketingmechanics03)
