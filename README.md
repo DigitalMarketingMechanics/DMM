@@ -20,7 +20,7 @@ Whether you're coding, creating, or managing campaigns, we've got your back.
 
 - 🌐 [Website](#) <!-- Add your website URL here -->
 - 📧 Email: [digitalmarketingmechanics03@gmail.com](mailto:digitalmarketingmechanics03@gmail.com)
-- 📘 [Facebook](#) <!--https://www.facebook.com/share/19C5N566SF/ -->
+- 📘 [Facebook] .[@DigitalMarketingMechanics](https://www.facebook.com/share/19C5N566SF/)
 - 📸 Instagram: [@digitalmarketingmechanics03](https://instagram.com/digitalmarketingmechanics03)
 - 🐦 X (Twitter): [@surendra280591](https://twitter.com/surendra280591)
 - 📺 YouTube: [@digitalmarketingmechanics-i3g](https://youtube.com/@digitalmarketingmechanics-i3g)
